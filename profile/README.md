@@ -56,7 +56,7 @@ The free tier ends quickly on purpose. A handful of messages is common. Image ge
 [See current plans](https://chubby-gf.com/mistressnf)
 
 <p align="center">
-  <a href="https://chubby-gf.com/mistressnf"><img src="./b2.jpg" width="110" alt="Plans"></a>
+  <a href="https://chubby-gf.com/mistressnf"><img src="./b1.jpg" width="110" alt="Plans"></a>
 </p>
 
 ---
@@ -109,7 +109,7 @@ None of these is a general assistant. The product is built around a character.
 It is less useful if you only need a general chatbot with no character or if you want a guaranteed store install. Many of the tools people use for this kind of chat are browser-based.
 
 <p align="center">
-  <a href="https://chubby-gf.com/mistressnf"><img src="./b3.jpg" width="110" alt="Start"></a>
+  <a href="https://chubby-gf.com/mistressnf"><img src="./b1.jpg" width="110" alt="Start"></a>
 </p>
 
 ---
@@ -129,10 +129,7 @@ mistress chatbot no filter · ai girlfriend · ai companion · browser ai chat �
 
 <p align="center">
   <a href="https://chubby-gf.com/mistressnf"><img src="./b1.jpg" width="110" alt="Open"></a>
-  &nbsp;
-  <a href="https://chubby-gf.com/mistressnf"><img src="./b2.jpg" width="110" alt="Plans"></a>
-  &nbsp;
-  <a href="https://chubby-gf.com/mistressnf"><img src="./b3.jpg" width="110" alt="Start"></a>
+
 </p>
 
 <p align="center">
